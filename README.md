@@ -4,7 +4,7 @@ Do you agree with holding Olympics?
 # Yoonhee Choi:
 I disagree with the Olympics. The first purpose of the Olympics is for World peace. However, it is stained by big companies’ marketing and profit. Furthermore, Olympics destroys too much nature. In my opinion, the Olympics should be stopped.
 
-# Yoonhee Choi 2nd Id:
+
 The Olympics is the World Festival. It is made for celebrating and gathering together once every four years. Even there is controversy about the side effects of the Olympics for example, ruining nature, and too much intervention of companies. Holding the Olympics is a good way to keep world peace.
 
 
